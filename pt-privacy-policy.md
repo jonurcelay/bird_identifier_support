@@ -1,6 +1,4 @@
-Aqui está a tradução da Política de Privacidade para português, mantendo um tom legal, profissional e natural.
 
----
 
 **Política de Privacidade**
 

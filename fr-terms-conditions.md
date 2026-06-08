@@ -1,6 +1,3 @@
-Excellent. Here is the professional French translation of the Terms & Conditions, maintaining the required legal tone and structure.
-
-***
 
 **Conditions Générales d'Utilisation**
 

@@ -1,6 +1,4 @@
-Excelente. Aqui está a tradução profissional dos Termos e Condições para português, mantendo o tom jurídico, a estrutura e a precisão do original.
 
-***
 
 **Termos e Condições**
 

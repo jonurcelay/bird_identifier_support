@@ -1,6 +1,4 @@
-Here is the professional Russian translation of the Privacy Policy.
 
-***
 
 **Политика конфиденциальности**
 

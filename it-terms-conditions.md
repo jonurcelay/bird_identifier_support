@@ -1,6 +1,3 @@
-Of course. Here is the professional Italian translation of the Terms & Conditions.
-
-***
 
 **Termini e Condizioni**
 

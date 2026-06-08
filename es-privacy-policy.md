@@ -1,6 +1,3 @@
-Aquí tiene la traducción profesional al español de la Política de Privacidad, manteniendo el tono legal, la estructura y el formato del original.
-
-***
 
 **Política de Privacidad**
 

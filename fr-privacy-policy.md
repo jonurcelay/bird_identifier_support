@@ -1,6 +1,4 @@
-Of course. Here is the professional French translation of the Privacy Policy, maintaining the original structure, legal tone, and formatting.
 
-***
 
 **Politique de Confidentialité**
 
