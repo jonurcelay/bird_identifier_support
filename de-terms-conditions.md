@@ -1,6 +1,4 @@
-Of course. Here is the professional German translation of the Terms & Conditions.
 
-***
 
 **Allgemeine Geschäftsbedingungen (AGB)**
 

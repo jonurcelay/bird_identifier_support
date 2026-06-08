@@ -1,8 +1,4 @@
-Of course. As a professional legal translator, I will provide a natural and accurate German translation of your Privacy Policy, ensuring a formal tone and maintaining the original structure. To address the inconsistencies in the source text's use of "Service Provider," "we," and "they," I will adopt the standard German practice of using "wir" (we) and "uns" (us) for consistency and clarity, which is common in such documents.
 
-Here is the professional German translation:
-
----
 
 **Datenschutzerklärung**
 
